@@ -1,4 +1,4 @@
-## professional bandana collector. eternally busy.
+## hi, i'm abhee
 
 <!--
 **abheeshah-12/abheeshah-12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
